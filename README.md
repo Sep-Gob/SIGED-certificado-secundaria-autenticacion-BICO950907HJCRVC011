@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BICO950907HJCRVC011
+BICO950907HJCRVC01
